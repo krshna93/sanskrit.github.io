@@ -25,14 +25,14 @@ I'm V. Krishna Sharma, a scholar of Sama Veda and Advaita Vedanta Shastra.
 
 ### Studied under the guidance of these Gurus
 
-+ Samaveda                                      ~      Brahmasri “*Samagana Chatura”* **H.N Rajesh Shrowthy**, Mysore  
-+ Adwaita Vedanta                          ~      Brahmasri “*Nyaya Vedanta Vidvanmani”**** *****Dr. K. Vishwanatha Sharma**, Tirupati.  
++ Samaveda                                      ~      Brahmasri “Samagana Chatura” **H.N Rajesh Shrowthy**, Mysore  
++ Adwaita Vedanta                          ~      Brahmasri “**Nyaya Vedanta Vidvanmani”** **Dr.K. Vishwanatha Sharma**, Tirupati.  
 + Panini Vyakarana                         ~       Brahmasri Late. **Dr. Rani Subbaih Deekshitulu,** Mysore. 
-+ Ashta Brahmana                               ~      Brahmasri “*T.T.D Ashthana Vidwan” ***Venkatesh Shrowty**, Tirupati.  
-+ Shiksha Vyakarana                         ~       Brahmasri “*Chaturvedi*”** Dr. Vamshi Krishna Ghanapathy**, Mysore. 
-+ Basic Sanskrit                                ~       Brahmasri Late.** Mahabalaih**, Mysore. 
++ Ashta Brahmana                               ~       “T.T.D Ashthana Vidwan” Brahmasri **Venkatesh Shrowty**, Tirupati.  
++ Shiksha Vyakarana                         ~        “Chaturvedi” Brahmasri **Dr. Vamshi Krishna Ghanapathy**, Mysore. 
++ Basic Sanskrit                                ~       Brahmasri Late.**Mahabalaih**, Mysore. 
 
-Achievements, Certificates and Awards in Samaveda
+### Achievements, Certificates and Awards in Samaveda
 
 + Samaveda Rahasyanta                   -       Avadhoota Datta Peetham, Mysore. 
 + Samaveda Rahasyanta                   -       Sri Veda Shastra Parishat, Rajamundry. 
